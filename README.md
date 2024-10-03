@@ -1,6 +1,6 @@
 # Arrowsmith37
 ## CN 37 **Shalom** **Theo** **B.** **Samar**
-Hobbies
+**Hobbies**
 
 1. Basketball
 2. Chess
